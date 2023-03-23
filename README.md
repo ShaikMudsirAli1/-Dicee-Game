@@ -1,2 +1,2 @@
 # -Dicee-Game
-It  is  a simple fun 🎲 game!
+It  is  a simple fun 🎲 game!🔥
